@@ -1,1 +1,2 @@
-# Rijlessen-Utrecht
+# Rijlesse Utrecht
+Wat kost een rijles gemiddeld? 80% van de kandidaten betaalt een lesprijs per uur tussen € 45 en € 65 (volgens CBR-onderzoek onder examenkandidaten in november 2023). De lesprijs kan per rijschool anders zijn. Een gemiddelde leerling heeft ongeveer 30 tot 40 autorijlessen nodig. Als gemiddelde leerling kun je na de uitleg en ongeveer 3 keer oefenen de handeling voldoende en veilig uitvoeren. Een lesauto is [rijlessen utrecht](https://www.rijschool-troy.nl) dan je denkt. Wist je dat een lesauto zo'n 8,50 euro per lesuur kost? Uit onderzoek van Rijschool Pro blijkt dat een gemiddelde rijschoolhouder 65.000 kilometer per jaar rijdt met zijn lesauto.
